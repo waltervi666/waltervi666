@@ -1,10 +1,11 @@
--ye nome é **walter** vivnidsafgjlhgik
+- ye nome é **walter** vivnidsafgjlhgikAAAAAAAAA
 
--esses mano são cheio de por instagram 
+- esses mano são cheio de por instagram 
 
--gmail (eu realmente não sei por que você me chamaria) [gmail](w961171@gmail.com)
+- gmail (eu realmente não sei por que você me chamaria)
+[gmail](w961171@gmail.com) ✉
 
--ninguém é real
+- ninguém é real 
 [@waltrr666](https://www.instagram.com/waltrr666/)/[@gdpapel](https://www.instagram.com/gabrielcudepapel/)
 
 -🩸🧪😥
