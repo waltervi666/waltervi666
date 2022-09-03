@@ -6,7 +6,7 @@
 
 
 -ninguém é real
--[@waltrr666] (https://www.instagram.com/waltrr666/)
+-[@waltrr666](https://www.instagram.com/waltrr666/)
 
 -🩸🧪😥
 ![image](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white) 
