@@ -2,9 +2,10 @@
   
   esses são os meios de contatar a mim 
  
- - [@waltrr666](https://www.instagram.com/waltrr666/)/[@gdpapel](https://www.instagram.com/gabrielcudepapel/)
+ - [@waltrr666](https://www.instagram.com/waltrr666/)
+ - [@gdpapel](https://www.instagram.com/gabrielcudepapel/)
  
-- [gmail](w961171@gmail.com) ✉
+- [Gmail](w961171@gmail.com) 
 
 Quem não tava nas antigas, fala: how you never miss?
 
