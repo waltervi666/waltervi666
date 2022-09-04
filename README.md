@@ -1,7 +1,7 @@
  # COMO DIMINUI A FONTE 
  
- Sou estudante e uso este site para trabalhos e estudos 
- Acho que talvez um dia vou programar ou não 
+ Sou estudante e uso este site para trabalhos e estudos acho que talvez um dia vou programar ou não,enfim,não sei o por que de você tá aqui
+ talvez seja por conta dos repositórios
   
   esses são os meios de contatar a mim 
  
