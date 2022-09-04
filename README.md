@@ -1,7 +1,9 @@
 
  ### info
-- Meu nome ja tá no nick oxi '-' 
+
 - Sou estudante e uso este site para trabalhos e estudos 
+- Meu nome ja tá no nick oxi '-' 
+- não manjo nada 
   
  ### esses são os meios de contatar a mim 
  
