@@ -1,6 +1,7 @@
 - ye adm da conta **walter** vivnidsafgjlhgikAAAAAAAAA
- e esses são os meios de contatar a mim (eu realmente não sei por que você me chamaria)
-
+  
+  esses são os meios de contatar a mim 
+ 
  - [@waltrr666](https://www.instagram.com/waltrr666/)/[@gdpapel](https://www.instagram.com/gabrielcudepapel/)
  
 - [gmail](w961171@gmail.com) ✉
