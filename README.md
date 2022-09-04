@@ -1,7 +1,6 @@
-- ye nome é **walter** vivnidsafgjlhgikAAAAAAAAA
- e esses são os meios de contatar a mim
+- ye adm da conta **walter** vivnidsafgjlhgikAAAAAAAAA
 
-- esses mano são cheio de por instagram 
+  e esses são os meios de contatar a mim 
 
 - gmail (eu realmente não sei por que você me chamaria)
 [gmail](w961171@gmail.com) ✉
