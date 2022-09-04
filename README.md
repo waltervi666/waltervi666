@@ -6,7 +6,7 @@
  
  adm da conta walter vivnidsafgjlhgikAAAAAAAAA
   
-  ### <p align="center">os meios de contatar a mim (por que faria isso?)</p>
+  ### <p align="center"> meios de contatar a mim (por que faria isso?)</p>
  
  - [@waltrr666](https://www.instagram.com/waltrr666/)
  - [@gdpapel](https://www.instagram.com/gabrielcudepapel/)
