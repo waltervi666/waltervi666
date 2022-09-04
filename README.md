@@ -1,6 +1,7 @@
- # ye adm da conta **walter** vivnidsafgjlhgikAAAAAAAAA
-
-estou aprendendo e creio um dia a programar de verdade
+ #COMO DIMINUI A FONTE 
+ 
+ Sou estudante e uso este site para trabalhos e estudos 
+ Acho que talvez um dia vou programar ou não 
   
   esses são os meios de contatar a mim 
  
