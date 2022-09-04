@@ -1,12 +1,11 @@
 - ye adm da conta **walter** vivnidsafgjlhgikAAAAAAAAA
 
-  e esses são os meios de contatar a mim 
+  e esses são os meios de contatar a mim (eu realmente não sei por que você me chamaria)
 
-- gmail (eu realmente não sei por que você me chamaria)
-[gmail](w961171@gmail.com) ✉
+- gmail/instagram 
 
-- ninguém é real 
-[@waltrr666](https://www.instagram.com/waltrr666/)/[@gdpapel](https://www.instagram.com/gabrielcudepapel/)
+- [@waltrr666](https://www.instagram.com/waltrr666/)/[@gdpapel](https://www.instagram.com/gabrielcudepapel/)
+- [gmail](w961171@gmail.com) ✉
 
 Quem não tava nas antigas, fala: how you never miss?
 
