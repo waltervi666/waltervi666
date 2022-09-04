@@ -1,4 +1,4 @@
- # COMO DIMINUI A FONTE 
+### informaçôes etc... odeio essa parte
  
  Sou estudante e uso este site para trabalhos e estudos acho que talvez um dia vou programar ou não,enfim,não sei o por que de você tá aqui
  talvez seja por conta dos repositórios
