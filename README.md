@@ -1,11 +1,12 @@
 
-  adm da conta walter vivnidsafgjlhgikAAAAAAAAA
   
- <font size="4">sobre mim</font>
+ ### sobre mim
  
-  Sou um aluno e utilizo este site para realizar meus trabalhos e estudos.
+ Sou um aluno e utilizo este site para realizar meus trabalhos e estudos. 
+ 
+ adm da conta walter vivnidsafgjlhgikAAAAAAAAA
   
-  <p align="center">os meios de contatar a mim (por que faria isso?)</p>
+  ### <p align="center">os meios de contatar a mim (por que faria isso?)</p>
  
  - [@waltrr666](https://www.instagram.com/waltrr666/)
  - [@gdpapel](https://www.instagram.com/gabrielcudepapel/)
