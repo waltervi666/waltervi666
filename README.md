@@ -1,8 +1,10 @@
 
-  ### ye adm da conta walter vivnidsafgjlhgikAAAAAAAAA
+  adm da conta walter vivnidsafgjlhgikAAAAAAAAA
   
   
-  os meios de contatar a mim(por que faria isso?)
+  ### about me
+  
+  <p align="center">os meios de contatar a mim(por que faria isso?)</p>
  
  - [@waltrr666](https://www.instagram.com/waltrr666/)
  - [@gdpapel](https://www.instagram.com/gabrielcudepapel/)
