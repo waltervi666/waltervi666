@@ -2,6 +2,7 @@
   adm da conta walter vivnidsafgjlhgikAAAAAAAAA
   
  <font size="4">sobre mim</font>
+ 
   Sou um aluno e utilizo este site para realizar meus trabalhos e estudos.
   
   <p align="center">os meios de contatar a mim (por que faria isso?)</p>
