@@ -2,7 +2,7 @@
  
 - Sou estudante e uso este site para trabalhos e estudos 
   
-                           esses são os meios de contatar a mim 
+ *esses são os meios de contatar a mim* 
  
  - [@waltrr666](https://www.instagram.com/waltrr666/)
  - [@gdpapel](https://www.instagram.com/gabrielcudepapel/)
