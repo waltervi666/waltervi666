@@ -1,4 +1,4 @@
- #COMO DIMINUI A FONTE 
+ # COMO DIMINUI A FONTE 
  
  Sou estudante e uso este site para trabalhos e estudos 
  Acho que talvez um dia vou programar ou não 
