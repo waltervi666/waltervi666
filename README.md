@@ -1,7 +1,7 @@
 
  
-#### Sou estudante e uso este site para trabalhos e estudos acho que talvez um dia vou programar ou não,enfim,não sei
- o por que de você tá aqui talvez seja por conta dos repositórios
+<p> Sou estudante e uso este site para trabalhos e estudos acho que talvez um dia vou programar ou não,enfim,não sei
+ o por que de você tá aqui talvez seja por conta dos repositórios </p>
   
   esses são os meios de contatar a mim 
  
