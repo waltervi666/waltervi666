@@ -1,8 +1,8 @@
 
-  adm da conta walter vivnidsafgjlhgikAAAAAAAAA
+  <header> adm da conta walter vivnidsafgjlhgikAAAAAAAAA</header>
   
-  
-  ### about me
+  ### sobre mim 
+  Sou um aluno e utilizo este site para realizar meus trabalhos e estudos.
   
   <p align="center">os meios de contatar a mim(por que faria isso?)</p>
  
